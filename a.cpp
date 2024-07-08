@@ -1,1 +1,1 @@
-//siema
+//siema i czesc
